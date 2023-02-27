@@ -11,5 +11,7 @@ With a focus on delivering high-quality work that exceeds expectations, I am alw
 
 📧 Email: cherry.dominguez36@gmail.com
 
+💜 PREVIEW: 💜
+
 ![32_Movie_poster_dance](https://user-images.githubusercontent.com/105072341/221668045-71f937ab-b302-41d1-b959-76ec0df66fae.jpg)
 
